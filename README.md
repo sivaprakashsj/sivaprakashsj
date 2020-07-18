@@ -1,4 +1,4 @@
-### Hi there, This is Sivaprakash S J 👋
+## Hi there, This is Sivaprakash S J 👋
 
 I'm a tech entrepreneur and software developer from Madurai, Tamilnadu, India, who believe in tech-driven business development. Some technologies I'm currently working on Angular and Android. My interest is to build tech-enabled business platforms to engage business in a more sophisticated way. As CEO & Founder of [Divergent Development Labs](https://d-devlabs.com), I lead my team to work with **"Student & Administration Portal"** 📖 for [Vidyaan](https://vidyaan.d-devlabs.com) - [The Madura College](https://maduracollege.edu.in), **"Video Resume Based Job Portal"** 🏢 for [Job Polish](https://jobpolish.com) - Oplossen Private Limited.
 
