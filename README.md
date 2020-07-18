@@ -11,4 +11,4 @@ LinkedIn - [Sivaprakash S J](https://www.linkedin.com/in/sivaprakashsj/)
 
 If you would like to get software development related service from our company :heart:, contact me via social media platforms or email. :email:
 
-If you like to interview me or to get some advices, feel free to ping me in [Telegram](https://t.me/SivaprakashSJ) :iphone:. Ready to help in Entrepreneurship, Startups and Tech related matters. By the way, I love to engage with the right people. 
+If you like to **interview** me or to get some **advices**, feel free to ping me in [Telegram](https://t.me/SivaprakashSJ) :iphone:. Ready to help in **Entrepreneurship, Startups and Tech** related matters. By the way, I love to engage with the right people. 
